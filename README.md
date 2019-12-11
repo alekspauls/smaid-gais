@@ -1,0 +1,2 @@
+# smaid-gais
+noliktava
